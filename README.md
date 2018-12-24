@@ -1,0 +1,1 @@
+This is the Yearly Update of the Shares and Dividend holding by Patrick So
